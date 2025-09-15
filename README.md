@@ -1,3 +1,6 @@
-<img width="450" height="449" alt="gif" src="https://github.com/user-attachments/assets/073a68eb-a111-4eb0-b81b-147fb509b953" />
+ㅤㅤㅤㅤ<img width="350" height="459" alt="image" src="https://github.com/user-attachments/assets/49fa8f3f-99bb-4842-a73b-f0c32ff853df" />
 
-ㅤㅤㅤinteractions are slow , almost always offtab . whisper me
+ㅤㅤㅤ**interactions are slow , almost always offtab . whisper me**
+ㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤi prefer talking to people who share my interests
