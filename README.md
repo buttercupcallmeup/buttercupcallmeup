@@ -7,11 +7,11 @@
 ㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi prefer talking to people who share my interests
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim cool i promise:-)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ im cool i promise:-)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pmbckq43cizwgn3yc5vecy6noi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=853500&interchange=true&profanity=false&hide_remaster=false&bar_color=c55002&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pmbckq43cizwgn3yc5vecy6noi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=603016&interchange=true&profanity=false&hide_remaster=false&bar_color=e17209&bar_color_cover=false">
   </a>
 </p>
 
