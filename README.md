@@ -1,12 +1,12 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="350" height="550" alt="image" src="IMG_4048.png" />
 
 ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="405" height="30" alt="image" src="https://github.com/user-attachments/assets/2210f356-a69f-405a-8387-e00530146197" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="405" height="30" alt="image" src="tumblr_66341ef2f10b61db122a91e069b0b684_be6373c8_500.png" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**interactions are slow , almost always offtab . whisper me**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**interactions are slow , almost always offtab . whisper me**
 ㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi prefer talking to people who share my interests
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi prefer talking to people who share my interests
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
