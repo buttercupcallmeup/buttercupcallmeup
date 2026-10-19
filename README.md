@@ -6,6 +6,7 @@
 ㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi prefer talking to people who share my interests
+<img width="50" height="50" alt="image" scr="" />
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
