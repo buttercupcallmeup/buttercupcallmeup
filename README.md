@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="450" height="450" alt="image" src="Untitled24_20261105111139.png" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="220" height="220" alt="image" src="Untitled24_20261105111210.png" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="230" height="230" alt="image" src="Untitled24_20261105111210.png" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="80" height="80" alt="image" src="stamp (3).gif" /> <img width="80" height="80" alt="image" src="stamp (4).gif" /> <img width="80" height="80" alt="image" src="stamp (5).gif" /> <img width="80" height="80" alt="image" src="stamp (35).png" />
 <p align="center">
